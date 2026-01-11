@@ -28,5 +28,11 @@ Work Experience:
     
     Letter of Recommendation: [Eleven_Company_Letter_of_Recommendation.pdf](https://github.com/user-attachments/files/24416532/Eleven_Company_Letter_of_Recommendation.pdf)
 
+Recommendation Letters:
+  - University: [Tamer Hamzah's Recommendation letter (University).pdf](https://github.com/user-attachments/files/24554219/Tamer.Hamzah.s.Recommendation.letter.University.pdf)
+
+  - School: [Tamer Hamzah's Recommendation letter (School).pdf](https://github.com/user-attachments/files/24554221/Tamer.Hamzah.s.Recommendation.letter.School.pdf)
+
+
     
   
